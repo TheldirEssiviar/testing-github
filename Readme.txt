@@ -2,10 +2,6 @@ this is great documentation.
 
 so might be this.
 
-also this.
-
-and this.
-
 please like and subscribe or follow
 
 please donate to our patreon
