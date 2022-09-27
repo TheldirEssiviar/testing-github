@@ -6,5 +6,3 @@ I made some edits via github online.
 
 This edit is going to get deleted.
 
-This one too.
-
