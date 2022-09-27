@@ -6,4 +6,4 @@ also this
 
 and this
 
-please like and subscribe
+please like and subscribe or follow
