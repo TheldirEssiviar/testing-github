@@ -1,1 +1,1 @@
-These changes make this file way way better.
+This repository is for learning basic git and github concepts.
