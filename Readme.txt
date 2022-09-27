@@ -7,3 +7,5 @@ also this
 and this
 
 please like and subscribe or follow
+
+please donate to our patreon
